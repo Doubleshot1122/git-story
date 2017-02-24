@@ -4,4 +4,6 @@ Which was totes okay, because the hedgehogs had a nasty habit of molesting Ron.
 
 But the hedgehogs weren't satisfied. They called for a council of all the woodland critters.  
 
+<<<<<<< HEAD
 The woodland critters invoked an ancient spell, calling forth the honey badger.
+=======
