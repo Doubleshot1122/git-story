@@ -2,4 +2,3 @@ Once upon a time there was a drug dealing dragon named Ron. Ron's favorite rappe
 
 But the hedgehogs were sick of Ron's shit. They called for a council of all the woodland critters.  
 
-So the council gathered.
