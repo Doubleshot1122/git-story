@@ -4,6 +4,7 @@ Which was totes okay, because the hedgehogs had a nasty habit of molesting Ron.
 
 But the hedgehogs weren't satisfied. They called for a council of all the woodland critters.  
 
-<<<<<<< HEAD
-The woodland critters invoked an ancient spell, calling forth the honey badger.
-=======
+The ferrets being a very close cousin to the hedgehogs were furious and so they made plans to assemble an army.
+
+
+Because it was time to take care of Ron, but Ron was aware of the council and was ready for them.
