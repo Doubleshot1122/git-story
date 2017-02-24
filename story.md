@@ -4,4 +4,4 @@ Which was totes okay, because the hedgehogs had a nasty habit of molesting Ron.
 
 But the hedgehogs weren't satisfied. They called for a council of all the woodland critters.  
 
-
+The ferrets being a very close cousin to the hedgehogs were furious and so they made plans to assemble an army.
